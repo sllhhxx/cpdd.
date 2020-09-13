@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 史亮亮傻逼，对不起二哥，伤二哥的心，不是东西。求二哥原谅。
 
 You can use the [editor on GitHub](https://github.com/sllhhxx1314/cpdd./edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
